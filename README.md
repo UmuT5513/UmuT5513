@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact<br><br>Hi, it's me. Try to understand AI era. Sometimes it seems complicated, sometimes it is said it's can't be such easy.<br><br>🔭 I’m currently working on Python, ML<br>👯 I’m looking to collaborate on who loves doing searching<br>🌱 I’m currently learning Python and related stuff.<br>💬 3rd year of CENG in DUZCE<br>⚡ Fun fact: Today I'm still alive.<br><br>Dest be kâr, dil-be yâr!<br><br>He says "READ", and also says "taught humanity what they knew not"<br><br><br>
+<br>Hi, it's me. Try to understand AI era. Sometimes it seems complicated, sometimes it is said it's can't be such easy.<br><br>🔭 I’m currently working on Python, ML<br>👯 I’m looking to collaborate on who loves doing searching<br>🌱 I’m currently learning Python and related stuff.<br>💬 3rd year of CENG in DUZCE<br>⚡ Fun fact: Today I'm still alive.<br><br>Dest be kâr, dil-be yâr!<br><br>He says "READ", and also says "taught humanity what they knew not"<br><br><br>
 
 
 ## 🌐 Socials:
